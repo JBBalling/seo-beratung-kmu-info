@@ -44,4 +44,6 @@ Als erfahrener [SEO Freelancer](https://www.seo-beratung-kmu.de/suchmaschinenopt
 - Messbare Ergebnisse  
 
 Ich verstehe die Herausforderungen kleiner Unternehmen – und weiß, wie man auch mit begrenzten Ressourcen starke SEO-Ergebnisse erzielen kann. 
+
+
 Webseite: [https://www.seo-beratung-kmu.de/](https://www.seo-beratung-kmu.de/)
