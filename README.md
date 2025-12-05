@@ -42,7 +42,7 @@ Behebung technischer SEO-Probleme, Verbesserung der Ladezeiten, mobile
 Optimierung, Indexierungsmanagement u. v. m.
 
 ✅ Onlineshop SEO
-Onlineshop SEO sorgt dafür, dass Ihr Online-Shop bei Google besser gefunden wird, mehr qualifizierte Besucher erhält und dadurch Umsatz und Conversion-Rate steigen.
+sorgt dafür, dass Ihr Online-Shop bei Google besser gefunden wird, mehr qualifizierte Besucher erhält und dadurch Umsatz und Conversion-Rate steigen.
 [weitere Informationen zu Onlineshop SEO](https://www.seo-beratung-kmu.de/suchmaschinenoptimierung/onlineshop-seo/)
 
 ✅ Content-Strategie & Erstellung
